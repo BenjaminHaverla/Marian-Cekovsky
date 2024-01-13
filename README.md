@@ -1,4 +1,4 @@
-# Marian-Cekovsky
+# Marián Čekovský – motivational chat
 
 -------------------------------------------------------------
 

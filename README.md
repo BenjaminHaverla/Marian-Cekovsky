@@ -2,7 +2,9 @@
 
 When I created at the age of 16 music video about "[Life with ISIC](https://www.youtube.com/watch?v=07TXVp8rjss)", I had the opportunity to talk with the famous Slovak musician, singer, songwriter, comedian and presenter Marián Čekovský.
 
-![](Images/Mobilfest_awards.jpg)
+![MobilFest film festival – recieving awards](Images/Mobilfest_awards.jpg)
+
+I remember how my father mentioned that he positively enjoyed the music video. After the award ceremony, we met, and he said, Great job! Keep going!
 
 -------------------------------------------------------------
 

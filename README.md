@@ -1,5 +1,7 @@
 # Marián Čekovský – motivational chat
 
+When I created at the age of 16 music video about "[Life with ISIC](https://www.youtube.com/watch?v=07TXVp8rjss)", I had the opportunity to talk with the famous Slovak musician, singer, songwriter, comedian and presenter Marián Čekovský.
+
 -------------------------------------------------------------
 
 # BACK TO THE...

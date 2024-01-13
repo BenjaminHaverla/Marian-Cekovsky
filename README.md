@@ -10,6 +10,8 @@ I remember how my father mentioned that he positively enjoyed the music video. A
 
 ![MobilFest film festival – recieving awards](Images/marian_cekovsky.png)
 
+Hearing this honest sentence from him motivated me to continue on my filmmaking path.
+
 -------------------------------------------------------------
 
 # BACK TO THE...

@@ -4,7 +4,11 @@ When I created at the age of 16 music video about "[Life with ISIC](https://www.
 
 ![MobilFest film festival – recieving awards](Images/Mobilfest_awards.jpg)
 
-I remember how my father mentioned that he positively enjoyed the music video. After the award ceremony, we met, and he said, **`Great job! Keep going!`**
+I remember how my father mentioned that he positively enjoyed the music video. After the award ceremony, we met, and he said,
+
+**`Great job! Keep going!`**
+
+![MobilFest film festival – recieving awards](Images/marian_cekovsky.png)
 
 -------------------------------------------------------------
 
